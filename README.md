@@ -1,0 +1,2 @@
+# NETFL-X-LOG-N
+NETFLİX
